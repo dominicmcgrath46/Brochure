@@ -1,2 +1,2 @@
 # Brochure
-Keeping Busy- Brochure- A GUIDE TO ST JAMES -
+amended_directory_final_1.pdf
